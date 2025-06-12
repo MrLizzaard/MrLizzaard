@@ -10,7 +10,7 @@
 
 
 
-### 🛠 My Weapons 🛠
+### 🛠 Studying 🛠
 
 <div>
 
